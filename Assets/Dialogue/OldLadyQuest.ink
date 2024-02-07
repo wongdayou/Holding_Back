@@ -1,0 +1,1 @@
+Excuse me, young dear. Could you spare a moment to help me cross the road? I'm not as spry as used to be
